@@ -12,7 +12,7 @@ indo/eng
 
 oriented aroace and demisexual
 
-i'm an animator, artist, composer, voice actor, incredibox modder, you name it.
+animator, artist, composer, voice actor, incredibox modder, you name it.
 
 my main interest is Incredibox KATS (for now)!
 
